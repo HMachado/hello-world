@@ -1,3 +1,3 @@
 # hello-world
 
-I'm a funny guy! 
+I'm now funny and in love.
